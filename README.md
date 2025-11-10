@@ -59,7 +59,7 @@ We may update this privacy policy from time to time. We will notify you of any c
 
 If you have any questions about this Privacy Policy, please contact us at:
 
-**Email:** bofindik@gmail.com
+**Email:** mypet@gmail.com
 
 ---
 
